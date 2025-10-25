@@ -1,1 +1,1 @@
-who doesn't love disk ord(link)
+who doesn't love diskord
